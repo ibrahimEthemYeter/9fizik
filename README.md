@@ -1,12 +1,12 @@
-# fizik9
-İbrahim Ethem Yeter
-9/A
-164
-PATATES KIZARMASI İÇİN  GEREKLİ MAZEMELER
-1-)2  Adet patates
-2-) 250ml  Ayçiçek yağı
-3-)1 tutam tuz
-PATATES KIZARMASI  TARİFİ
+# fizik9                          
+İbrahim Ethem Yeter 
+9/A     
+164       
+ PATATES KIZARMASI İÇİN  GEREKLİ MAZEMELER      
+1-)2  Adet patates         
+2-) 250ml  Ayçiçek         
+3-)1 tutam  tuz          
+PATATES KIZARMASI  TARİFİ       
 ilk olarak  patatesleri soyuyoruz.Ardından patatesleri ince dilimliyoruz.
 Ondan sonra  yağımızı  tavada ısıtıyoruz.Sıcak yağın içine 
 ince olan patatesleri atıyoruz ve üstüne bir tutam  tuz serpiştiriyoruz. 
